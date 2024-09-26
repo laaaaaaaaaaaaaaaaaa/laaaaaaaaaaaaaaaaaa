@@ -1,1 +1,1 @@
-jennie kim´s daughter 
+20.
